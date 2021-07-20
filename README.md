@@ -1,1 +1,1 @@
-https://katiemcmillin.github.io/portfolio/portfolio/index.html
+katiemcmillin.com
